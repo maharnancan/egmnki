@@ -1,0 +1,2 @@
+# egmnki
+Daily digest notes
